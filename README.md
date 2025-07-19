@@ -19,9 +19,11 @@ Hi Hi! Please Read this !!
 
 ## DNI // IWC
 
-I dont generally have a dni list since I do hide freely, but those with **past drama**, **A bad reputation**, **Child x Any**, and basically anyone under the common dni list, dni.
+I dont generally have a dni list since I do hide freely, but those with **past drama**, **A bad reputation**, **Child x Any**, and basically anyone under the common dni list, dni. 
 
-As for Interacting with caution, Transformers Fans and Dandy's world fans please Iwc . Trolls please iwc.
+Disrespecting people with triggers? Immediate dni.
+
+As for Interacting with caution, Transformers Fans and Dandy's world fans please Iwc . Trolls please iwc. 
 
 
 ## Fandoms
@@ -65,6 +67,8 @@ As for Interacting with caution, Transformers Fans and Dandy's world fans please
 > When I just added you, please reach out to me first since im often shy around my new friends
 
 > Im mostly offtab, w2i !!
+
+> Moots c+h !! >_<
 
 > This github is plain af
 
