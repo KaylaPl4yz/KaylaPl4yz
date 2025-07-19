@@ -26,15 +26,26 @@ As for Interacting with caution, Transformers Fans and Dandy's world fans please
 
 ## Fandoms
 > Team Fortress 2
+ 
 > Transformers (kinda)
+ 
 > Metal Cardbot
+
 > Kpop Demon Hunters
+
 > Mcyt (Hermitcraft, Qsmp, Rats smp, etcetc.)
+
 > Blocktales
+
 > Forsaken
+
 > The Commandlings!!
+
 > Epic The Musical
+
 > Phighting
+
+
 > Among many others !!
 
 ## Where to find me?
@@ -44,30 +55,98 @@ As for Interacting with caution, Transformers Fans and Dandy's world fans please
 
 ## Cool-ish facts about me
 > I host VPI (Vital Path Innovations)
+
 > I host Telamon's Manor (A blocktales-inspired mafia)
+
 > I love my friends /p
+
 > I havea mild cover trigger in public spaces unless im with my friends
+
+> When I just added you, please reach out to me first since im often shy around my new friends
+
 > Im mostly offtab, w2i !!
+
 > This github is plain af
 
 ## Kins/Fav Characters
 > Medic
-> Skywarp
-> Mega Ambler
+
 > Pyro
+
+--- + — + ---
+
+> Skywarp
+
+> Mirage
+
+--- + — + ---
+
+> Mega Ambler
+
+> Flash Vector
+
+--- + — + ---
+
 > Kitchen Wizard
+
+> Griefer
+
+> Calypo
+
+--- + — + ---
+
 > Elliot
+
 > Pr3typriincess
+
+> Two Time
+
+--- + — + ---
+
 > Medkit
+
+> Scythe
+
+> Subspace
+
+> The sfoth family trust
+
+--- + — + ---
+
 > My dearest command ocs
      - /roll (Gambler)
      - /dice (Jackpot)
      - ;control and ;fire
-> Mirage
-> Flash Vector
-> Folly
+
+> My Metal Cardbot ocs!!
+     - Prism Fire
+     - Lunim Cascade
+     - Among many otherd
+
+> My ocs in general
+
+--- + — + ---
+
 > Tallulah
+
 > Chayanne
+
 > SunnySideUp
+
+> Death Duo (Ph1lza and Missa)
+
+> Technoblade
+
+> Grian
+
+> White Pine
+
+> Owengejuice
+
+> Scott Smajor
+
+> Among many others
+> 
+--- + — + ---
 
 > And many, MANY More
