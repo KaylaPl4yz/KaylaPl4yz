@@ -47,6 +47,7 @@ As for Interacting with caution, Transformers Fans and Dandy's world fans please
 
 > Phighting
 
+> Orison
 
 > Among many others !!
 
@@ -131,6 +132,8 @@ As for Interacting with caution, Transformers Fans and Dandy's world fans please
 > Subspace
 
 > The sfoth family trust
+
+> Genesis (Orison!!)
 
 --- + — + ---
 
