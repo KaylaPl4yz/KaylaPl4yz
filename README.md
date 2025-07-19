@@ -79,9 +79,18 @@ As for Interacting with caution, Transformers Fans and Dandy's world fans please
 
 --- + — + ---
 
-> Skywarp
+> The elite trine !!
 
 > Mirage
+
+> Sentinel Prime (TFO)
+
+> Dino (DOTM)
+
+> Soundwave
+
+> Knockout (TFP)
+
 
 --- + — + ---
 
@@ -97,6 +106,10 @@ As for Interacting with caution, Transformers Fans and Dandy's world fans please
 
 > Calypo
 
+> Red noob
+
+> Blue Noob
+
 --- + — + ---
 
 > Elliot
@@ -104,6 +117,10 @@ As for Interacting with caution, Transformers Fans and Dandy's world fans please
 > Pr3typriincess
 
 > Two Time
+
+> Bluudud
+
+> Widow (Desolate)
 
 --- + — + ---
 
