@@ -15,7 +15,7 @@ Hi Hi! Please Read this !!
 
 > I can be Moody and dramatic-ish as hell
 
-> Passive-agressive, please use tone tags!!
+> If I dont know you or we arent close, Please use tone tags . I cant tell if what you're saying is a joke or very serious .
 
 ## Fandoms
 > Team Fortress 2
