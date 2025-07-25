@@ -2,11 +2,11 @@ Hi Hi! Please Read this !!
 
 ## ABOUT ME
 
-> Kayla || Medic || Ambler || Pyro
+> Kayla || Medic || Widow || Comf/Skin
 
 > Any/All but I prefer Female/Gender Neutral Terms
 
-> 🇵🇭 || 08/31
+> 🇵🇭 || 08/31 || Demi-aroace // Questioning
 
 ## BYI
 > Im surprisingly social-ish when I recognize your skin/pony from time to time, though mostly i am just too shy
@@ -16,6 +16,8 @@ Hi Hi! Please Read this !!
 > I can be Moody and dramatic-ish as hell
 
 > If I dont know you or we arent close, Please use tone tags . I cant tell if what you're saying is a joke or very serious .
+
+> Often very much a silly, other times a prick if you have wronged others, especially my friends.
 
 ## Fandoms
 > Team Fortress 2
@@ -54,7 +56,7 @@ Hi Hi! Please Read this !!
 
 > I love my friends /p
 
-> I havea mild cover trigger in public spaces unless im with my friends
+> I have a mild cover trigger in public spaces unless im with my friends
 
 > When I just added you, please reach out to me first since im often shy around my new friends
 
@@ -65,13 +67,22 @@ Hi Hi! Please Read this !!
 > This github is plain af
 
 ## Kins/Fav Characters
+
 > Medic
 
 > Pyro
 
+> Scout 
+
+> Heavy
+
 --- + — + ---
 
-> The elite trine !!
+> Skywarp
+
+> Starscream
+
+> Thundercracker
 
 > Mirage
 
@@ -112,7 +123,19 @@ Hi Hi! Please Read this !!
 
 > Bluudud
 
-> Widow (Desolate)
+--- + — ---
+
+
+> Widow 
+
+> Famine
+
+> Carnage
+
+> Demolitionist
+
+> Mia
+
 
 --- + — + ---
 
@@ -122,9 +145,15 @@ Hi Hi! Please Read this !!
 
 > Subspace
 
-> The sfoth family trust
+> Sfoth Swords
 
-> Genesis (Orison!!)
+--- + — + ---
+
+
+> Genesis
+
+> Messenger
+
 
 --- + — + ---
 
@@ -150,18 +179,34 @@ Hi Hi! Please Read this !!
 
 > Death Duo (Ph1lza and Missa)
 
+--- + — + ---
+
 > Technoblade
+
+> Tubbo_
+
+> Ph1lza
+
+--- + — + ---
 
 > Grian
 
-> White Pine
+> Geminitay
+
+> Goodtimeswithscar
+
+--- + — + ---
+
+> IvoryTV
 
 > Owengejuice
 
 > Scott Smajor
 
-> Among many others
-> 
+> Juniperwho
+
+> PrinceZam
+
 --- + — + ---
 
 > And many, MANY More
@@ -179,4 +224,5 @@ Under 13 and over 21 dni/iwec .
 
 As for Interacting with caution, Transformers Fans and Dandy's world fans please Iwc . Trolls please iwc. 
 
+--- + — + ---
 
