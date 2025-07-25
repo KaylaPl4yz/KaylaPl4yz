@@ -215,14 +215,14 @@ Hi Hi! Please Read this !!
 
 ## DNI // IWC
 
-I dont generally have a dni list since I do hide freely, but those with **past drama**, **A bad reputation**, **Child x Any**, and basically anyone under the common dni list, dni. 
+> I dont generally have a dni list since I do hide freely, but those with **past drama**, **A bad reputation**, **Child x Any**, and basically anyone under the common dni list, dni. 
 
-Disrespecting people with triggers? Immediate dni. 
+> Disrespecting people with triggers? Immediate dni. 
 
-Under 13 and over 21 dni/iwec .
+> Under 13 and over 21 dni/iwec .
 
 
-As for Interacting with caution, Transformers Fans and Dandy's world fans please Iwc . Trolls please iwc. 
+> As for Interacting with caution, Transformers Fans and Dandy's world fans please Iwc . Trolls please iwc. 
 
 --- + — + ---
 
