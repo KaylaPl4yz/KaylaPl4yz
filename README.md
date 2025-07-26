@@ -81,7 +81,7 @@ Please Interact if you're in the following Fandoms!! :;
 
 🤖 || Metal Cardbot // Transformers (Unless, Again, you're THOSE fans) // CRK (Same as Transformers and Forsaken and whatnot) 
 
-☁️ || MCYT :; Hermitcraft // Lifesteal SMP // POW creations (Rats Smp, Pirates Smp, Outsiders SMP) //Kaboodle Smp // QSMP //  Whitepine // Kaleidoscope Smp // Empires Smp // and more!!
+☁️ || MCYT :; Hermitcraft // Lifesteal SMP // POW creations (Rats Smp, Pirates Smp, Outsiders SMP) //Kaboodle Smp // QSMP //  Whitepine // Kaloscope Smp // Empires Smp // and more!!
 
 🎶 || Epic The Musical // Heathers The Musical // Derivakat // CG5 // Billie Bust Up // Any other music songs/artists I didnt mention!
 
@@ -95,7 +95,7 @@ Please Interact if you're in the following Fandoms!! :;
 
 🤖 || Mega Ambler // Flash Vector // Skywarp // Solus Prime // Mirage 
 
-☁️ || Owengejuice // Magicsings // Tubbo_ // Ph1lza // Grian // Geminitay // PrinceZam // IvoryTV // Many More!!
+☁️ || Owengejuice // Magicsings // Tubbo_ // Ph1lza // Grian // Geminitay // PrinceZam // IvoryTV // Mari Exists // Many More!!
 
 🎶 || Aeolus // Poseidon // Circe // Tiresias // Heather McNamara // Veronica Sawyer // Fantoccio // Barnaby
 
