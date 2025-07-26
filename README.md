@@ -91,7 +91,7 @@ Please Interact if you're in the following Fandoms!! :;
 
 🍀 || Broken Spawn // None Texture // Zekery // Jim // Cashier // Fire Ring [^2]
 
-[^2]: Now you may be wondering, why Fire Ring out of everyone? Similar to Fire Ring, Im feel like a bad friend. I push people away, often times almost acting rude. I couldnt properly say I needed space without distancing myself from people. I pull myself away from people, going distant, even acting rude and rash. Its one of my coping mechanisms. Bash me, hate me all you want for this fact, but thats how I feel like I relate to Fire Ring in a way. Obviously, I dont act like this all the time, but if you're on my friend list and I suddenly feel like pulling away, do know that this is the reason and we should talk it through. 🫶
+[^2]: Now you may be wondering, why Fire Ring out of everyone? Similar to Fire Ring, I feel like a bad friend. I push people away, often times almost acting rude. I couldnt properly say I needed space without distancing myself from people. I pull myself away from people, going distant, even acting rude and rash. Its one of my coping mechanisms. Bash me, hate me all you want for this fact, but thats how I feel like I relate to Fire Ring in a way. Obviously, I dont act like this all the time, but if you're on my friend list and I suddenly feel like pulling away, do know that this is the reason and we should talk it through. 🫶
 
 ⚡ || Elliot // Pr3typriincess // Kitchen Wizard // Calypso // Red Noob // Blue Noob // Griefer // Jane Doe // Genesis // Messenger // Telamon // Taph // Widow // Famine // Carnage // Devotion 
 
