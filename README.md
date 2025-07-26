@@ -1,228 +1,97 @@
-Hi Hi! Please Read this !!
+### # ` . ☀️ — About Me!! || :; 
 
-## ABOUT ME
+☆ Name: Kayla Aragassi (Online Persona)
+☆ Nicknames: Kay, Kayla, Medic, Pyro, Widow, Ambler, (Sky)warp, etc.
+☆ Age: Minor, 14+
+☆ Gender: Female
+☆ B-Day: 08/31
 
-> Kayla || Medic || Widow || Comf/Skin
+˗ˏˋ  ♡  ˎˊ˗
 
-> Any/All but I prefer Female/Gender Neutral Terms
+[ Optional to Read!! ]
 
-> 🇵🇭 || 08/31 || Demi-aroace // Questioning
+☆ Zodiac: Virgo
+☆ MBTI: INFP-J
+☆ Sexuality: Demi-Aroace // Questioning
+☆ Country: Philippines || 🇵🇭
 
-## BYI
-> Im surprisingly social-ish when I recognize your skin/pony from time to time, though mostly i am just too shy
+˗ˏˋ  ♡  ˎˊ˗
 
-> I often stay with my friends, but when im alone dont be afraid to interact
+### ✦ . > [ 🔮 ] " BYI „ || :: 
 
-> I can be Moody and dramatic-ish as hell
+× . ∆ :; I am a Dramatic-ish and Moody Person. I can get upset over the smallest things but not to an extent. I can also be easily upset when it comes to spamming or text walls of certain memes. I apologize for that
 
-> If I dont know you or we arent close, Please use tone tags . I cant tell if what you're saying is a joke or very serious .
+~ ` || :; I often stay around my friends, mainly [Kiki](link) and [Skittlez](link) . Do not join cuddle piles unless we agreed to do so. 
 
-> Often very much a silly, other times a prick if you have wronged others, especially my friends.
+× . ∆ :; I misspell from time to time because im typing as fast as I can. Adding to this, sometimes I replace 't' with 'z' and 'a' with '∆'. I dont do it as much but it does happen
 
-## Fandoms
-> Team Fortress 2
- 
-> Transformers (kinda)
- 
-> Metal Cardbot
+~ ` || :; I have a mild crowd discomfort, so I hide with friends or go to the very corner of a spot where I can still see my pony. If someone's still covering me, im most likely going to hide them 
 
-> Kpop Demon Hunters
+× . ∆ :; Im mostly very much annoying if I wanted to interact. I promise im a nice person, just dont be a prick to my friends or other people in general.
 
-> Mcyt (Hermitcraft, Qsmp, Rats smp, etcetc.)
+~ ` || :; Using tone tags is highly appreciated!! its hard for me to tell if a sentence you made was a joke, a silly comment, or something srs. Here is the reference for [Tone Tags](https://tonetags.carrd.co/)
 
-> Blocktales
+× . ∆ :; Im always free for c+h when im not with friends, but im usually offtab or waiting.
 
-> Forsaken
+~ ` || :; My moods switches time to time!! You can tell while we're making this Github LMAO
 
-> The Commandlings!!
+Will update more about this as It progresses
 
-> Epic The Musical
+### # ` . ❌ — DNI || :; 
 
-> Phighting
+❌ :; The basic [DNI criteria](https://basic-dni.crd.co/)
 
-> Orison
+❌:; Are you someone I dont wish to interact? Sure! I hide/block freely, so it wouldnt be an issue. Dont want to interact with me? Feel free to ALSO hide/block me unless me or my friends are hosting.
 
-> Among many others !!
+❌:; If you SOMEHOW are in my SCHOOL IRL, DNI DNI DNI. I dont know HOW you got here and WHERE'D you even FIND THIS.
 
-## Where to find me?
-> Im usually around docks or Tf2 area on the safe server
+### ✦ . > [ 🎀 ] " IWC/IWEC „ || :: 
 
-> I can also be found in Lab roleplays, Infections, Oc makers, Mafias and Hangouts . Im occasionally in School roleplays and sometimes chilling with friends
+🎀 :; Are you a transformers fan? 75% of the time, I find you guys scary, rude, and agressive as hell. If you're one of those people, IWEC or just dont interact with me at all.
 
-## Cool-ish facts about me
-> I host VPI (Vital Path Innovations)
+🎀 :; You shippers out there, I can see you. If you force ships on people, IWEC to DNI !!
 
-> I host Telamon's Manor (A blocktales-inspired mafia)
+🎀 : If you're supporting drama of any kind in fandims, IWC or don't bring them up to me as often as you can!!
 
-> I love my friends /p
+🎀 :; If you think everything is Forsaken lore or similar, IWEC to DNI [^1]
 
-> I have a mild cover trigger in public spaces unless im with my friends
+[^1]: Ah yes, Roblox. Specifically games that adapt hackers, admins, and whatnot into their games. IWC if you think that eeevvery ship that ships a character that was adapted in lets say— c00lkidd . c00lkidd is a **minor** in Forsaken, but it doesnt necessarily mean that you ship THAT c00lkidd. For all you know, it could be from TR;UD, Save Robloxia, or the hacker itself.
 
-> When I just added you, please reach out to me first since im often shy around my new friends
 
-> Im mostly offtab, w2i !!
+### - - { FANDOMS || 👑
 
-> Moots c+h !! >_<
+Please Interact if you're in the following Fandoms!! :;
 
-> This github is plain af
+🔫 || Team Fortress 2 // Cookie Run Kingdom // Sky: Children of the Light // Viral Cycle
 
-## Kins/Fav Characters
+🍀 || ^_^ // Let Him Go // Life's Purpose // Transparent // Any Psychological Horror Games
 
-> Medic
+⚡ || Forsaken (Unless you're THOSE fans) // Blocktales // Phighting // TR;UD // Save Robloxia // Orison // Desolate // Forswapped // SFOTH // anything similar to these!
 
-> Pyro
+🤖 || Metal Cardbot // Transformers (Unless, Again, you're THOSE fans) // CRK (Same as Transformers and Forsaken and whatnot) 
 
-> Scout 
+☁️ || MCYT :; Hermitcraft // Lifesteal SMP // POW creations (Rats Smp, Pirates Smp, Outsiders SMP) //Kaboodle Smp // QSMP //  Whitepine // Kaleidoscope Smp // Empires Smp // and more!!
 
-> Heavy
+🎶 || Epic The Musical // Heathers The Musical // Derivakat // CG5 // Billie Bust Up // Any other music songs/artists I didnt mention!
 
---- + — + ---
+### ~ ` • { 🍕 || Comforts/Kins ‼️
 
-> Skywarp
+🔫 || Medic // Pyro // Scout // Chili Pepper Cookie // Black Sapphire Cookie
 
-> Starscream
+🍀 || Broken Spawn // None Texture // Zekery // Jim // Cashier
 
-> Thundercracker
+⚡ || Elliot // Pr3typriincess // Kitchen Wizard // Calypso // Red Noob // Blue Noob // Griefer // Jane Doe // Genesis // Messenger // Telamon // Taph // Widow // Famine // Carnage // Devotion
 
-> Mirage
+🤖 || Mega Ambler // Flash Vector // Skywarp // Solus Prime // Mirage 
 
-> Sentinel Prime (TFO)
+☁️ || Owengejuice // Magicsings // Tubbo_ // Ph1lza // Grian // Geminitay // PrinceZam // IvoryTV // Many More!!
 
-> Dino (DOTM)
+🎶 || Aeolus // Poseidon // Circe // Tiresias // Heather McNamara // Veronica Sawyer // Fantoccio // Barnaby
 
-> Soundwave
+> I do have more comforts that I forgot to list Above!!
 
-> Knockout (TFP)
 
 
---- + — + ---
 
-> Mega Ambler
 
-> Flash Vector
-
---- + — + ---
-
-> Kitchen Wizard
-
-> Griefer
-
-> Calypo
-
-> Red noob
-
-> Blue Noob
-
---- + — + ---
-
-> Elliot
-
-> Pr3typriincess
-
-> Two Time
-
-> Bluudud
-
---- + — ---
-
-
-> Widow 
-
-> Famine
-
-> Carnage
-
-> Demolitionist
-
-> Mia
-
-
---- + — + ---
-
-> Medkit
-
-> Scythe
-
-> Subspace
-
-> Sfoth Swords
-
---- + — + ---
-
-
-> Genesis
-
-> Messenger
-
-
---- + — + ---
-
-> My dearest command ocs
-     - /roll (Gambler)
-     - /dice (Jackpot)
-     - ;control and ;fire
-
-> My Metal Cardbot ocs!!
-     - Prism Fire
-     - Lunim Cascade
-     - Among many otherd
-
-> My ocs in general
-
---- + — + ---
-
-> Tallulah
-
-> Chayanne
-
-> SunnySideUp
-
-> Death Duo (Ph1lza and Missa)
-
---- + — + ---
-
-> Technoblade
-
-> Tubbo_
-
-> Ph1lza
-
---- + — + ---
-
-> Grian
-
-> Geminitay
-
-> Goodtimeswithscar
-
---- + — + ---
-
-> IvoryTV
-
-> Owengejuice
-
-> Scott Smajor
-
-> Juniperwho
-
-> PrinceZam
-
---- + — + ---
-
-> And many, MANY More
-
---- + — + ---
-
-## DNI // IWC
-
-> I dont generally have a dni list since I do hide freely, but those with **past drama**, **A bad reputation**, **Child x Any**, and basically anyone under the common dni list, dni. 
-
-> Disrespecting people with triggers? Immediate dni. 
-
-> Under 13 and over 21 dni/iwec .
-
-
-> As for Interacting with caution, Transformers Fans and Dandy's world fans please Iwc . Trolls please iwc. 
-
---- + — + ---
 
