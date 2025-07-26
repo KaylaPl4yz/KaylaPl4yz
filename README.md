@@ -1,21 +1,32 @@
 ### # ` . ☀️ — About Me!! || :; 
 
+
 ☆ Name: Kayla Aragassi (Online Persona)
+
 ☆ Nicknames: Kay, Kayla, Medic, Pyro, Widow, Ambler, (Sky)warp, etc.
+
 ☆ Age: Minor 
+
 ☆ Gender: Female
+
 ☆ B-Day: 08/31
+
 
 ˗ˏˋ  ♡  ˎˊ˗
 
 [ Optional to Read!! ]
 
 ☆ Zodiac: Virgo
+
 ☆ MBTI: INFP-J
+
 ☆ Sexuality: Demi-Aroace // Questioning
+
 ☆ Country: Philippines || 🇵🇭
 
+
 ˗ˏˋ  ♡  ˎˊ˗
+
 
 ### ✦ . > [ 🔮 ] " BYI „ || :: 
 
