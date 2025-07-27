@@ -11,6 +11,7 @@
 
 ☆ B-Day: 08/31
 
+☆ Pronouns: She/Them „ Any/All (for rp/cosplays/Comf reasons)
 
 ˗ˏˋ  ♡  ˎˊ˗
 
@@ -102,7 +103,13 @@ Please Interact if you're in the following Fandoms!! :;
 
 > I do have more comforts that I forgot to list Above!!
 
+### ~ ` • { ‼️ Cool Facts About me?!
 
+∆ > I host Vital Path Innovations!!
+
+∆ > I used to host Telamon's Manor
+
+∆ > Work In progress.. 
 
 
 
