@@ -109,8 +109,26 @@ Please Interact if you're in the following Fandoms!! :;
 
 ∆ > I used to host Telamon's Manor
 
-∆ > Work In progress.. 
+∆ > I draw for fun!
+
+∆ > My current style is inspired from my previous styles + Friends styles
+
+∆ > Whats with the Patreon experience? See, I do not have the best experience when it comes to people with Patreon, so I tend to stay away from that as much as I can
+
+∆ > Mm.. I aspire to do cosplays of my own one day
+
+∆ > Funny thing is that I have multiple headcannons for each character I roleplay so its safe to say my characters aren't that accurate to the actual lore 
+
+∆ > Im fond of Lore, and I am always up for lore cooking. Partially also the reason why im usually offtab
+
+∆ > Any drama revolving around me and my friends? Do let me know, ill try and take care of it + Take responsibility 
+
+∆ > I have a 'log system', Kind of like diaries to help me remember stuff. 
+
+∆ > I space out/Zone out from time to time, either daydreaming, imagining stuff, or just to pass time
 
 
+
+--- [ FOOTNOTE BELOW ] ---
 
 
