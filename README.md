@@ -74,7 +74,7 @@ Will update more about this as It progresses
 
 Please Interact if you're in the following Fandoms!! :;
 
-🔫 || Team Fortress 2 // Cookie Run Kingdom // Sky: Children of the Light // Viral Cycle
+🔫 || Team Fortress 2 // Cookie Run Kingdom // Sky: Children of the Light // Viral Cycle // Smg4
 
 🍀 || ^_^ // Let Him Go // Life's Purpose // Transparent // Any Psychological Horror Games
 
@@ -88,7 +88,7 @@ Please Interact if you're in the following Fandoms!! :;
 
 ### ~ ` • { 🍕 || Comforts/Kins ‼️
 
-🔫 || Medic // Pyro // Scout // Chili Pepper Cookie // Black Sapphire Cookie
+🔫 || Medic // Pyro // Scout // Chili Pepper Cookie // Black Sapphire Cookie // Mr WPNZ
 
 🍀 || Broken Spawn // None Texture // Zekery // Jim // Cashier // Fire Ring
 
