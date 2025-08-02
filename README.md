@@ -59,8 +59,6 @@ Will update more about this as It progresses
 
 ### ✦ . > [ 🎀 ] " IWC/IWEC „ || :: 
 
-🎀 :; Are you a transformers fan? 75% of the time, I find you guys scary, rude, and agressive as hell. If you're one of those people, IWEC or just dont interact with me at all.
-
 🎀 :; You shippers out there, I can see you. If you force ships on people, IWEC to DNI !!
 
 🎀 : If you're supporting drama of any kind in fandims, IWC or don't bring them up to me as often as you can!!
