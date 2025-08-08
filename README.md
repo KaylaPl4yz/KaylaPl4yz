@@ -71,13 +71,13 @@ Will update more about this as It progresses
 ### - - { FANDOMS || 👑
 
 
-🔫 || Team Fortress 2 // Cookie Run Kingdom // Smg4
+🔫 || Team Fortress 2 // Cookie Run Kingdom // Smg4 // Henry Stickmin
 
-🍀 || ^_^ // Let Him Go // Life's Purpose // Transparent // Any Psychological Horror Games
+🍀 || ^_^ // Let Him Go // Life's Purpose // Transparent // Any Psychological Horror Game
 
 ⚡ || Forsaken (Unless you're THOSE fans) // Blocktales // Phighting // TR;UD // Save Robloxia // Orison // Desolate // Forswapped // SFOTH // anything similar to these!
 
-🤖 || Metal Cardbot // Transformers (Unlesd you're THOSE fans) // CRK (Same as Transformers and Forsaken and whatnot) 
+🤖 || Metal Cardbot // Transformers (Unless you're THOSE fans. You know yourself) // CRK (Same as Transformers and Forsaken and whatnot) 
 
 ☁️ || MCYT :; Hermitcraft // Lifesteal SMP // POW creations (Rats Smp, Pirates Smp, Outsiders SMP) //Kaboodle Smp // QSMP //  Whitepine // Kaloscope Smp // Empires Smp // and more!!
 
