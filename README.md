@@ -73,7 +73,7 @@ Will update more about this as It progresses
 
 🔫 || Team Fortress 2 // Cookie Run Kingdom // Smg4 // Henry Stickmin
 
-🍀 || ^_^ // Let Him Go // Life's Purpose // Transparent // Any Psychological Horror Game
+🍀 || ^_^ // Let Him Go // Life's Purpose // Transparent // Any Psychological Horror Game // Pizza Tower // Roblox ARGs/Myths 
 
 ⚡ || Forsaken (Unless you're THOSE fans) // Blocktales // Phighting // TR;UD // Save Robloxia // Orison // Desolate // Forswapped // SFOTH // anything similar to these!
 
