@@ -3,7 +3,7 @@
 
 ☆ Name: Kayla Aragassi (Online Persona)
 
-☆ Nicknames: Kay // Kayla // Medic // Pyro // Widow // Ambler // (Sky)warp // Integrity // Zkin
+☆ Nicknames: Kay // Kayla // Medic // Pyro // Widow // Ambler // (Sky)warp // Integrity // Fritz // Zkin
 
 ☆ Age: Minor 
 
