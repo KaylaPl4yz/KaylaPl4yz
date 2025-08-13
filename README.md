@@ -35,7 +35,7 @@
 
 ~ ` || :; I often stay around my friends, mainly [Kiki](link) and [Skittlez](link) . Do not join cuddle piles unless we agreed to do so. 
 
-× . ∆ :; I misspell from time to time because im typing as fast as I can. Adding to this, sometimes I replace 't' with 'z' and 'a' with '∆'. I dont do it as much but it does happen
+× . ∆ :; I misspell from time to time because im typing as fast as I can. Adding to this, I have a typing quirk that I use depending on mood ^_^
 
 ~ ` || :; I can get overwhelmed from large crowds, so I hide with friends or go to the very corner of a spot where I can still see my pony. If someone's still covering me, im most likely going to hide them 
 
