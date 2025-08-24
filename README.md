@@ -71,7 +71,7 @@ Will update more about this as It progresses
 ### - - { FANDOMS || 👑
 
 
-🔫 || Team Fortress 2 // Cookie Run Kingdom // Smg4 // Henry Stickmin // Ace Attorney 
+🔫 || Team Fortress 2 // Cookie Run Kingdom // Smg4 // Henry Stickmin // Ace Attorney // Numberblocks
 
 🍀 || ^_^ // Let Him Go // Life's Purpose // Transparent // Any Psychological Horror Game // Pizza Game // Roblox ARGs/Myths 
 
