@@ -83,11 +83,22 @@ Will update more about this as It progresses
 
 🎶 || Epic The Musical // Heathers The Musical // Derivakat // CG5 // Billie Bust Up // Any other music songs/artists I didnt mention!
 
+📝 || [ These are some roleplays/lore made by awesome people! ]
+
+- Colorosis Renteia
+- The Codes.exe
+- Zhe Virtues
+- NRHS (Nexus Roswal)
+- Aquatic Ambitions
+- Wishbone Analytics ^_^
+- The Commandlings
+- Any other projects my friends are doing as of now I forgot to mention!
+
 ### ~ ` • { 🍕 || Comforts/Kins ‼️
 
 🔫 || Medic // Pyro // Scout // Chili Pepper Cookie // Black Sapphire Cookie // Mr WPNZ
 
-🍀 || Broken Spawn // None Texture // Zekery // Jim // Cashier // Fire Ring
+🍀 || Broken Spawn // None Texture // Zekery // Jim // Cashier // Fire Ring // Sam // Many others I didnt mention!!
 
 
 ⚡ || Elliot // Pr3typriincess // Kitchen Wizard // Calypso // Red Noob // Blue Noob // Griefer // Jane Doe // Genesis // Messenger // Telamon // Taph // Widow // Famine // Carnage // Devotion 
