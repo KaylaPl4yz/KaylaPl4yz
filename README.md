@@ -129,13 +129,9 @@ Will update more about this as It progresses
 
 ∆ > Im fond of Lore, and I am always up for lore cooking. Partially also the reason why im usually offtab
 
-∆ > Any drama revolving around me and my friends? Do let me know, ill try and take care of it + I will take responsibility of it
+∆ > Any drama revolving around me and my friends? Do let me know, ill try and take care of it + I will try and take responsibility of it
 
-∆ > I have a 'log system', Kind of like diaries to help me remember stuff. 
 
-∆ > I space out/Zone out from time to time, either daydreaming, imagining stuff, or just to pass time
-
-∆ > I have this oc myth/lore/game thingy im working on. Currently planning out the lore!! [ 07/30/2025 ]
 
 
 --- [ FOOTNOTE BELOW ] ---
