@@ -71,9 +71,9 @@ Will update more about this as It progresses
 ### - - { FANDOMS || 👑
 
 
-🔫 || Team Fortress 2 // Cookie Run Kingdom // Smg4 // Henry Stickmin // Ace Attorney // Numberblocks
+🔫 || Team Fortress 2 // Cookie Run Kingdom // Smg4 // Henry Stickmin // Ace Attorney // Numberblocks 
 
-🍀 || ^_^ // Let Him Go // Life's Purpose // Transparent // Any Psychological Horror Game // Pizza Game // Roblox ARGs/Myths 
+🍀 || ^_^ // Let Him Go // Life's Purpose // Transparent // Any Psychological Horror Game // Pizza Game // Roblox ARGs/Myths // Typical Colors 2
 
 ⚡ || Forsaken (Unless you're THOSE fans) // Blocktales // Phighting // TR;UD // Save Robloxia // Orison // Desolate // Forswapped // SFOTH // anything similar to these!
 
