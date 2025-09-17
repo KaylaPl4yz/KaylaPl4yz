@@ -119,7 +119,7 @@ Will update more about this as It progresses
 
 ∆ > I draw for fun!
 
-∆ > My current style is inspired from my previous styles + Friends styles
+∆ > My current style is inspired from my previous styles + Friends styles. You may take inspiration but please dont copy my ponies color for color and acc for acc. I worked hard on them ^_^
 
 ∆ > Whats with the Patreon experience? See, I do not have the best experience when it comes to people with Patreon, so I tend to stay away from that as much as I can
 
