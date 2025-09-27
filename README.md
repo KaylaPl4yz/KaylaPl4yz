@@ -103,7 +103,7 @@ Will update more about this as It progresses
 
 ⚡ || Elliot // Pr3typriincess // Kitchen Wizard // Calypso // Red Noob // Blue Noob // Griefer // Jane Doe // Genesis // Messenger // Telamon // Taph // Widow // Famine // Carnage // Devotion 
 
-🤖 || Mega Ambler // Flash Vector // Skywarp // Solus Prime // Mirage 
+🤖 || Mega Ambler // Flash Vector // Heavy Iron // Buster Gallon // Buffalo Crush // Skywarp // Solus Prime // Mirage 
 
 ☁️ || Owengejuice // Magicsings // Tubbo_ // Ph1lza // Grian // Geminitay // PrinceZam // IvoryTV // Mari Exists // Many More!!
 
