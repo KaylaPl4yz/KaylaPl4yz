@@ -3,7 +3,7 @@
 
 ☆ Name: Kayla Aragassi (Online Persona)
 
-☆ Nicknames: Kay // Kayla // Fritz // Daisy // Any Skin Im using ^_^
+☆ Nicknames: Kay // Kayla // Fritz // Daisy // Aria // Any Skin Im using ^_^
 
 ☆ Age: Minor 
 
@@ -75,13 +75,15 @@ Will update more about this as It progresses
 
 🍀 || ^_^ // Let Him Go // Life's Purpose // Transparent // Any Psychological Horror Game // Pizza Game // Roblox ARGs/Myths // Typical Colors 2
 
-⚡ || Forsaken (Unless you're THOSE fans) // Blocktales // Phighting // TR;UD // Save Robloxia // Orison // Desolate // Forswapped // SFOTH // anything similar to these!
+⚡ || Forsaken (Unless you're THOSE fans) // Blocktales // Phighting // TR;UD // Save Robloxia // Orison // Desolate // Forswapped // Termination Protocol // SFOTH // anything similar to these!
 
 🤖 || Metal Cardbot // Transformers (Unless you're THOSE fans. You know yourself) // CRK (Same as Transformers and Forsaken and whatnot) 
 
 ☁️ || MCYT :; Hermitcraft // Lifesteal SMP // POW creations (Rats Smp, Pirates Smp, Outsiders SMP) //Kaboodle Smp // QSMP //  Whitepine // Kaloscope Smp // Empires Smp // and more!!
 
 🎶 || Epic The Musical // Heathers The Musical // Derivakat // CG5 // Billie Bust Up // Any other music songs/artists I didnt mention!
+
+📖 || The Canterbury Tales // Noli Me Tangere // Beowulf // El Filibusterismo // Animal Magic // The Chronicles of Narnia (Specifically :; The Last Battle) // Other books and media I forgot to add!
 
 📝 || [ These are some roleplays/lore made by awesome people! ]
 
@@ -117,7 +119,7 @@ Will update more about this as It progresses
 
 ∆ > I used to host Telamon's Manor
 
-∆ > I draw for fun!
+∆ > I draw for fun and whimsy!
 
 ∆ > My current style is inspired from my previous styles + Friends styles. You may take inspiration but please dont copy my ponies color for color and acc for acc. I worked hard on them ^_^
 
