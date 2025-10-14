@@ -4,9 +4,6 @@
 <sub> — OwengeJuiceTV „ Outsiders SMP </sub>
 
 A Wip!
-
----
-***
 ___
 
 `Inline code`
@@ -14,6 +11,7 @@ ___
 ```python
 # Code block with syntax highlighting
 print("Hello, GitHub!")
+
 
 > This is a blockquote.
 > > Nested blockquote.
