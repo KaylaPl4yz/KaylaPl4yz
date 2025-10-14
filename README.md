@@ -6,12 +6,4 @@
 A Wip!
 ___
 
-`Inline code`
-
-```python
-# Code block with syntax highlighting
-print("Hello, GitHub!")
-
-
-> This is a blockquote.
-> > Nested blockquote.
+> Now Loading :; User's Basic Information 
