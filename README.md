@@ -28,7 +28,7 @@ ___
 
 > — This user is chronically online and stays away from situations unless it involves them directly 
 
-> — This user is an absolute cornball
+> — This user is an absolute cornball and has the free will to hide or block anyone who bothers them
 
 > — This Github intro hasnt been programmed to write EVERYTHING about this user. It is adviced to talk to the user to know more about them.
 
@@ -36,6 +36,12 @@ ___
 
 ---
 
-'Now Loading :; User's Basic DNI'
+`Now Loading :; User's Basic DNI`
 
-> ×[Basic DNI Criteria](https://dni-criteria.carrd.co/)
+> × [Basic DNI Criteria](https://dni-criteria.carrd.co/)
+
+> × People who supports raids. Im sorry, but raids make me lag so badly and hurts my eyes.
+
+> × Those who ship children with an adult romantically.
+
+> × I dont have a fully set DNI list other than the basic DNI criteria.
