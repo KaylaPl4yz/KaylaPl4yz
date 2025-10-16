@@ -23,3 +23,9 @@ ___
 > — This user may tend to be dry or overly excited
 
 > — This user may come across as rude, but they are actually really nice!
+
+> — This user may sometimes go Semi Verbal or Non Verbal.
+
+> — This user is chronically online
+
+> — This user stays away from situations unless it involves them directly 
