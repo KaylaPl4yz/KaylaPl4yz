@@ -30,7 +30,9 @@ ___
 
 > — This user is chronically online and stays away from situations unless it involves them directly 
 
-> — This user is an absolute cornball and has the free will to hide or block anyone who bothers them
+> — This user is an absolute cornball and has the free will to hide or block anyone who bothers them.
+
+> — User HIGHLY APPRECIATES [Tone Tags](https://tonetags.carrd.co/), and will often use the following :; /sil, /j, /nsrs, etc.
 
 > — This Github intro hasnt been programmed to write EVERYTHING about this user. It is adviced to talk to the user to know more about them.
 
