@@ -44,4 +44,19 @@ ___
 
 > × Those who ship children with an adult romantically.
 
+> × Those whk support problematic games such as Tccoal (is that how you type it?), etc.
+
 > × I dont have a fully set DNI list other than the basic DNI criteria.
+
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRJ1cDRF_8v6xr9D3s2HaI7elL6Q7wcxf81YZJckNfJWA&s=10" alt="Woah banner color change?!">
+
+---
+
+`Now Loading :; User's IWC/IWEC`
+
+> × Those who think everything is Forsaken or who thinks a game or show is the origin of Everything EVERYTHING. A popular example is c00lkidd.
+
+> × Those who heavily mischaracterized someone or something and convinced everyone its cannon.
+
+> × Those who got in trouble with other labs, GTCs, and other roleplays and games. This is mostly also part of the DNI aswell.
+
