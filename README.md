@@ -8,9 +8,9 @@ ___
 
 #### ``Now Loading :; User's Basic Information``
 
-> ★ Designation — Kayla Aragassi
+> Designation — Kayla Aragassi
 
-> ★ Preferred Sub-Designations — Kayla „ 
-> ★ [CHARACTER NAME] „ Aria
+> Preferred Sub-Designations — Kayla „ [CHARACTER NAME] „ Aria
 
-> ★ Preferred Pronouns — Any // All
+> Preferred Pronouns — Any // All „ Character's Pronouns
+
