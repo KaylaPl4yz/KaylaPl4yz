@@ -16,6 +16,8 @@ ___
 
 <img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRfW_PsTqmqEAKjM-oE3m_Acrd42-9-_7haupwrUmP9Sw&s=10" alt="Purple Divider oOoOo" />
 
+---
+
 #### `Now Loading :; User's Basic BYI`
 
 > — The user may tend to get severe moodswings, leading for them to be dry or overly excited in conversations
