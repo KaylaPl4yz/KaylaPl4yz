@@ -32,7 +32,7 @@ ___
 
 > — This Github intro hasnt been programmed to write EVERYTHING about this user. It is adviced to talk to the user to know more about them.
 
-[insert inage]
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTAUeIZ_3FDWMhxEG8QFj1HNraDpnMXwH0fwvQvWy1LTw&s=10" alt="Purple Banner oiIIO">
 
 ---
 
