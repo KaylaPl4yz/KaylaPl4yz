@@ -29,3 +29,8 @@ ___
 > — This user is chronically online
 
 > — This user stays away from situations unless it involves them directly 
+
+> — This user is an absolute cornball
+
+> — This user loves ocs, lore, and yes.
+
