@@ -14,5 +14,5 @@ ___
 
 > Preferred Pronouns — Any // All „ Character's Pronouns
 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR1Bco67qIkIe5j9uXe7_ZdQsRlNNVylnsj_euhz8779Q&s=10" alt="Purple Banner oOoOo" />
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRsdBcOJsag-QBjIAXdPrhyQa55VbmltkWkLoe4i1hbRw&s=10" alt="Purple Divider oOoOo" />
 
