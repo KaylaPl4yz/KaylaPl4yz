@@ -32,3 +32,10 @@ ___
 
 > — This Github intro hasnt been programmed to write EVERYTHING about this user. It is adviced to talk to the user to know more about them.
 
+[insert inage]
+
+---
+
+'Now Loading :; User's Basic DNI'
+
+> ×[Basic DNI Criteria](https://dni-criteria.carrd.co/)
