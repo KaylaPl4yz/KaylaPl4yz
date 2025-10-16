@@ -32,5 +32,5 @@ ___
 
 > — This user is an absolute cornball
 
-> — This user loves ocs, lore, and yes.
+> — This Github intro hasnt been programmed to write EVERYTHING about this user. It is adviced to talk to the user to know more about them.
 
