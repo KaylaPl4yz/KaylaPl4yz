@@ -11,3 +11,5 @@ ___
 > Designation — Kayla Aragassi
 
 > Preferred Sub-Designations — Kayla „ [CHARACTER NAME] „ Aria
+
+> Preferred Pronouns — Any // All
