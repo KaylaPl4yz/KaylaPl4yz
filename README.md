@@ -18,17 +18,13 @@ ___
 
 #### `Now Loading :; User's Basic BYI`
 
-> — The user may tend to get severe moodswings.
-
-> — This user may tend to be dry or overly excited
+> — The user may tend to get severe moodswings, leading for them to be dry or overly excited in conversations
 
 > — This user may come across as rude, but they are actually really nice!
 
 > — This user may sometimes go Semi Verbal or Non Verbal.
 
-> — This user is chronically online
-
-> — This user stays away from situations unless it involves them directly 
+> — This user is chronically online and stays away from situations unless it involves them directly 
 
 > — This user is an absolute cornball
 
