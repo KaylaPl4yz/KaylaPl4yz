@@ -88,3 +88,10 @@ ___
 
 > [[ And many more ]]
 
+
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRJ1cDRF_8v6xr9D3s2HaI7elL6Q7wcxf81YZJckNfJWA&s=10" alt="Woah banner color change?!">
+
+---
+
+* "Its not about Vampires vs. Humans. Its about Oakhurst vs. Those who wish us harm" *
+<sub> -v!Legundo „ Vampires SMP </sub>
