@@ -93,5 +93,4 @@ ___
 
 ---
 
-*"Its not about Vampires vs. Humans. Its about Oakhurst vs. Those who wish us harm"*
-<sub> -v!Legundo „ Vampires SMP </sub>
+*"Its not about Vampires vs. Humans. Its about Oakhurst vs. Those who wish us harm"* <sub> —v!Legundo „ Vampires SMP </sub>
