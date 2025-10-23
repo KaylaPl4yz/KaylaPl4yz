@@ -71,3 +71,20 @@ ___
 `Now Loading :; User's fandoms`
 
 
+> 🍀 || ^_^ // Let Him Go // Life's Purpose // Transparent // Drawnout // Paul's Journey // Delusional // Other similar games
+
+
+> ⚡ || Forsaken (Unless you're THOSE fans) // Blocktales // Phighting // TR;UD // Save Robloxia // Orison // Desolate // Forswapped // SFOTH // anything similar to these!
+
+
+> 🤖 || Metal Cardbot // Transformers (Unless, Again, you're THOSE fans) // CRK (Same as Transformers and Forsaken and whatnot) // Team Fortress 2 
+
+
+
+> ☁️ || MCYT :; Hermitcraft // Lifesteal SMP // POW creations (Rats Smp, Pirates Smp, Outsiders SMP) //Kaboodle Smp // QSMP //  Whitepine // Kaleidoscope Smp // Empires Smp // and more
+
+
+> 🎶 || Epic The Musical // Heathers The Musical // Derivakat // CG5 // Billie Bust Up // Any other music songs/artists I didnt mention
+
+> [[ And many more ]]
+
