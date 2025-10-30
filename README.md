@@ -33,7 +33,7 @@ ___
 
 > — User HIGHLY APPRECIATES [Tone Tags](https://tonetags.carrd.co/), and will often use the following :; /sil, /j, /nsrs, etc.
 
-> - This user has/used to hos the following :: Telamon's Manor [BLOCKTALES-INSPIRED MAFIA] || Oakhurst Mafia [[ VSMP-THEMED MAFIA ]] || Charydbis High [[ CBHS // MCB-INSPIRED SCHOOL]] || VITAL PATH INNOVATIONS [[ VPI // BLOCKTALES-INSPIRED LAB ]]
+> — This user has/used to hos the following :: Telamon's Manor [BLOCKTALES-INSPIRED MAFIA] || Oakhurst Mafia [[ VSMP-THEMED MAFIA ]] || Charydbis High [[ CBHS // MCB-INSPIRED SCHOOL]] || VITAL PATH INNOVATIONS [[ VPI // BLOCKTALES-INSPIRED LAB ]]
 
 > — This Github intro hasnt been programmed to write EVERYTHING about this user. It is adviced to talk to the user to know more about them.
 
