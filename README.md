@@ -23,7 +23,7 @@ ___
 
 > — The user may tend to get severe moodswings, leading for them to be dry or overly excited in conversations
 
-> — This user may come across as rude, but they are actually really nice!
+> — This user may come across as rude, but they are actually really nice! 
 
 > — This user may sometimes go Semi Verbal or Non Verbal.
 
@@ -32,6 +32,8 @@ ___
 > — This user is an absolute cornball and has the free will to hide or block anyone who bothers them.
 
 > — User HIGHLY APPRECIATES [Tone Tags](https://tonetags.carrd.co/), and will often use the following :; /sil, /j, /nsrs, etc.
+
+> - This user has/used to hos the following :: Telamon's Manor [BLOCKTALES-INSPIRED MAFIA] || Oakhurst Mafia [[ VSMP-THEMED MAFIA ]] || Charydbis High [[ CBHS // MCB-INSPIRED SCHOOL]] || VITAL PATH INNOVATIONS [[ VPI // BLOCKTALES-INSPIRED LAB ]]
 
 > — This Github intro hasnt been programmed to write EVERYTHING about this user. It is adviced to talk to the user to know more about them.
 
