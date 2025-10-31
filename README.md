@@ -23,7 +23,7 @@ ___
 
 > — The user may tend to get severe moodswings, leading for them to be dry or overly excited in conversations
 
-> — This user may come across as rude, but they are actually really nice! 
+> — This user is rude and insensitive at times, but some times will feel rather emotional and restless. Treat them with care
 
 > — This user may sometimes go Semi Verbal or Non Verbal.
 
