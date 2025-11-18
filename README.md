@@ -78,7 +78,7 @@ ___
 > ⚡ || Forsaken (Unless you're THOSE fans) // Blocktales // Phighting // TR;UD // Save Robloxia // Orison // Desolate // Forswapped // SFOTH // anything similar to these!
 
 
-> 🤖 || Metal Cardbot // Transformers (Unless, Again, you're THOSE fans) // CRK (Same as Transformers and Forsaken and whatnot) // Team Fortress 2 
+> 🤖 || Metal Cardbot // Transformers // CRK // Team Fortress 2  // Hetalia
 
 
 
