@@ -35,7 +35,7 @@ ___
 
 > — This user has/used to host (and co-host!) the following ::
 
--# Telamon's Manor [BLOCKTALES-INSPIRED MAFIA] || Oakhurst Mafia [[ VSMP-THEMED MAFIA ]] || Charydbis High [[ CBHS // MCB-INSPIRED SCHOOL]] || VITAL PATH INNOVATIONS [[ VPI // BLOCKTALES-INSPIRED LAB ]] || EMPIRES: INTO THE PAST [[EMPIRES SMP THEMED MAFIA]] || Murder at the World Meeting [Hetalia-themed mafia]
+<sub> *Telamon's Manor [BLOCKTALES-INSPIRED MAFIA] || Oakhurst Mafia [[ VSMP-THEMED MAFIA ]] || Charydbis High [[ CBHS // MCB-INSPIRED SCHOOL]] || VITAL PATH INNOVATIONS [[ VPI // BLOCKTALES-INSPIRED LAB ]] || EMPIRES: INTO THE PAST [[EMPIRES SMP THEMED MAFIA]] || Murder at the World Meeting [Hetalia-themed mafia]* </sub>
 
 > — This Github intro hasnt been programmed to write EVERYTHING about this user. It is adviced to talk to the user to know more about them.
 
