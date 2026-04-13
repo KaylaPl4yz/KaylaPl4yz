@@ -1,4 +1,3 @@
-A remake in progress! Please be patient
 <p align=center>@ . " My Rival, My idol!</p>
 <img src="https://64.media.tumblr.com/6ddcde4ee45b7082fb0fd6905ae2e490/779aa251fd339498-09/s1280x1920/8be634df937ee8978743188a7f672c2e31048fa8.pnj" alt="Credits to uzmacchiato"/>
 
@@ -32,3 +31,7 @@ A remake in progress! Please be patient
 <p align=center>[ 2 ] MECHA | Transformers - Metal Cardbot - Tobot: Daedo Heroes.</p>
 <p align=center>[ 3 ] ROBLOX | Psychological Horror Games - Phighting - Blocktales - Orison - SFOTH - Delusional - [MANY MORE].</p>
 <p align=center>[ 4 ] OTHERS | Team Fortress 2 - Epic the Musical - Billie Bust Up - [MANY MORE]. </p>
+
+<img src="https://64.media.tumblr.com/abb92f2efbceef92e8076fd966033c24/8f8ac94bf4369e3a-ac/s1280x1920/b97ceb4f51d7071fbdf88a19bfb3f3a4f78cf7ec.pnj" alt="Credits to Uzimacchiato">
+
+<p align=center> # 💤 . Blf ziv z wrhvzhv lm gsv uzxv lu gsrh kozmvg, zmw R zn rgh xfiv.
