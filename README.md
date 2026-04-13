@@ -1,4 +1,4 @@
-<p align=center>@ . " My Rival, My idol!</p>
+<sub align=center>*@ . " My Rival, My idol!*</sub>
 <img src="https://64.media.tumblr.com/6ddcde4ee45b7082fb0fd6905ae2e490/779aa251fd339498-09/s1280x1920/8be634df937ee8978743188a7f672c2e31048fa8.pnj" alt="Credits to uzmacchiato"/>
 
 <h2 align=center>╰☆ 🖤 ⊹ : About me! </h2>
@@ -34,4 +34,4 @@
 
 <img src="https://64.media.tumblr.com/abb92f2efbceef92e8076fd966033c24/8f8ac94bf4369e3a-ac/s1280x1920/b97ceb4f51d7071fbdf88a19bfb3f3a4f78cf7ec.pnj" alt="Credits to Uzimacchiato">
 
-<p align=center> # 💤 . Blf ziv z wrhvzhv lm gsv uzxv lu gsrh kozmvg, zmw R zn rgh xfiv.
+<sub align=center> *# 💤 . Blf ziv z wrhvzhv lm gsv uzxv lu gsrh kozmvg, zmw R zn rgh xfiv.*</sub>
