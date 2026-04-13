@@ -8,6 +8,7 @@ A remake in progress! Please be patient
 <p align=center>🇵🇭 |~| Happily Taken </p>
 <img src="https://64.media.tumblr.com/82186802c99c4f39ff6307e5b10b8d06/779aa251fd339498-35/s1280x1920/fe8318f19d14a008f1f66217b341c1feff4d8d6f.pnj" alt="credits to uzmacchiato" />
 
+
 <h2 align=center> ︵ ❄️ › ✦ : BYI </h2>
 <p align=center>[ 1 ] User has a somewhat short temper and tens to be rude and insensitive if pushed.</p>
 <p align=center>[ 2 ] User gets severe moodswings, so its a gamble between being dry or being a chatyerbox</p>
@@ -23,3 +24,11 @@ A remake in progress! Please be patient
 <p align=center>[ 2 ] Users who support raids</p>
 <p align=center>[ 3 ] Disrespectful people</p>
 <p align=center>[ 4 ] No fully set dni  list — just be a good person.</p>
+
+<img src="https://64.media.tumblr.com/7e56c830381f545f42fab91b3e0fa492/a4c71817eda70ea5-c5/s640x960/244ad101507b6ef95c2ee712079e908e40046b6c.gifv" alt="credits to liminal-bambi">
+
+<h2 align=center> 〣✧ ⚪ ⊹ :; Fandoms </h2>
+<p align=center>[ 1 ] MCYT | Bliss Smp - Lifesteal SMP - POWCreations - Whitepine - Kaleidoscope SMP - Unstable Universe - Hermitcraft - State Smp - Decayed and Decrepit - [MANY MORE].</p>
+<p align=center>[ 2 ] MECHA | Transformers - Metal Cardbot - Tobot: Daedo Heroes.</p>
+<p align=center>[ 3 ] ROBLOX | Psychological Horror Games - Phighting - Blocktales - Orison - SFOTH - Delusional - [MANY MORE].</p>
+<p align=center>[ 4 ] OTHERS | Team Fortress 2 - Epic the Musical - Billie Bust Up - [MANY MORE]. </p>
