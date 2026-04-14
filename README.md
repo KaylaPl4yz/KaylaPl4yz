@@ -1,4 +1,4 @@
-<p align=center> *@ . " My Rival, My idol!*</p>
+<p align=center> *@ . " Our battle legendary!*</p>
 <img src="https://64.media.tumblr.com/6ddcde4ee45b7082fb0fd6905ae2e490/779aa251fd339498-09/s1280x1920/8be634df937ee8978743188a7f672c2e31048fa8.pnj" alt="Credits to uzmacchiato"/>
 
 <h2 align=center>╰☆ 🖤 ⊹ : About me! </h2>
@@ -9,7 +9,7 @@
 
 
 <h2 align=center> ︵ ❄️ › ✦ : BYI </h2>
-<p align=center>[ 1 ] User has a somewhat short temper and tens to be rude and insensitive if pushed.</p>
+<p align=center>[ 1 ] User has a somewhat short temper but they're very kind, dont hesitate to int in rps ^^.</p>
 <p align=center>[ 2 ] User gets severe moodswings, so its a gamble between being dry or being a chatyerbox</p>
 <p align=center>[ 3 ] User is chronically online</p>
 <p align=center>[ 4 ] User is a cornball</p>
