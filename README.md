@@ -35,4 +35,4 @@
 
 <img src="https://64.media.tumblr.com/abb92f2efbceef92e8076fd966033c24/8f8ac94bf4369e3a-ac/s1280x1920/b97ceb4f51d7071fbdf88a19bfb3f3a4f78cf7ec.pnj" alt="Credits to Uzimacchiato">
 
-<sub align=center> *# 💤 . Blf ziv z wrhvzhv lm gsv uzxv lu gsrh kozmvg, zmw R zn rgh xfiv.*</sub>
+<sub align=center> *# 💤 . Blf ziv z wrhvzhv lm gsv uzxv lu gsrh kozmvg, zmw R zn rgh xfiv. The user deeply apologizes if they were really rude or mean in the past!*</sub>
