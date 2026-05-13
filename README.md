@@ -15,7 +15,7 @@
 <p align=center>[ 4 ] User is a cornball</p>
 <p align=center>[ 5 ] User utilises the block and hide buttons often</p>
 <p align=center>[ 6 ] User appreciates [Tone tags](https://tonetags.carrd.co/)</p>
-<p align=center>[ 7 ] User may be cosplaying Forsaken, but be aware that they do NOT support the developers whatsoever. This goes for any other media with problematic creators. They only like the aus made</p>
+<p align=center>[ 7 ] User may be cosplaying media that could be mistakn for 'Forsaken'. Do note that their cosplays are not from any problematic games/medias.</p>
 <p align=center>[ 8 ] User experience recommended to fully be aware about the model.
 
 <img src="https://64.media.tumblr.com/9fc113358447ebbc9bc063acf2594a8e/779aa251fd339498-1d/s1280x1920/25cd00e3c5815d8f884113457c2fd8fd1ac41b7e.pnj" alt="credits to uzmacchiato"/>
