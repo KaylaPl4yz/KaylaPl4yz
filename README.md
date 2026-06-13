@@ -10,7 +10,7 @@
 
 <h2 align=center> ︵ ❄️ › ✦ : BYI </h2>
 <p align=center>[ 1 ] User has a somewhat short temper but they're very kind, dont hesitate to int in rps ^^.</p>
-<p align=center>[ 2 ] User gets severe moodswings, so its a gamble between being dry or being a chatyerbox</p>
+<p align=center>[ 2 ] User gets severe moodswings, so its a gamble between being dry or being a chatterbox</p>
 <p align=center>[ 3 ] User is chronically online</p>
 <p align=center>[ 4 ] User is a cornball</p>
 <p align=center>[ 5 ] User utilises the block and hide buttons often</p>
