@@ -14,7 +14,8 @@
 <p align=center>[ 3 ] User is chronically online</p>
 <p align=center>[ 4 ] User is a cornball</p>
 <p align=center>[ 5 ] User utilises the block and hide buttons often</p>
-<p align=center>[ 6 ] User appreciates [Tone tags](https://tonetags.carrd.co/)</p>
+<p align=center>[ 6 ] User appreciates [
+  Tone tags</p>
 <p align=center>[ 7 ] User may be cosplaying media that could be mistaken for 'Forsaken'. Do note that their cosplays are not from any problematic games/medias.</p>
 <p align=center>[ 8 ] User experience recommended to fully be aware about the model.
 
