@@ -22,7 +22,7 @@
 <img src="https://64.media.tumblr.com/9fc113358447ebbc9bc063acf2594a8e/779aa251fd339498-1d/s1280x1920/25cd00e3c5815d8f884113457c2fd8fd1ac41b7e.pnj" alt="credits to uzmacchiato"/>
 
 <h2 align=center> ⚠️ || DNI › ✦ : </h2>
-<p align=center>[ 1 ] [Basic DNI Criteria](https://dni-criteria.carrd.co)</p>
+<p align=center>[ 1 ] Basic DNI Criteria</p>
 <p align=center>[ 2 ] Users who support raids</p>
 <p align=center>[ 3 ] Disrespectful people</p>
 <p align=center>[ 4 ] No fully set dni  list — just be a good person.</p>
@@ -33,8 +33,8 @@
 <p align=center>[ 1 ] MCYT | Bliss Smp - Lifesteal SMP - POWCreations - Whitepine - Kaleidoscope SMP - Unstable Universe - Hermitcraft - State Smp - Decayed and Decrepit - The Flight - [MANY MORE].</p>
 <p align=center>[ 2 ] MECHA | Transformers - Metal Cardbot - Tobot: Daedo Heroes.</p>
 <p align=center>[ 3 ] ROBLOX | Psychological Horror Games - Phighting - Blocktales - Orison - SFOTH - Delusional - [MANY MORE].</p>
-<p align=center>[ 4 ] OTHERS | Team Fortress 2 - Epic the Musical - Billie Bust Up - Among Us Show - [MANY MORE]. </p>
+<p align=center>[ 4 ] OTHERS | Team Fortress 2 - Epic the Musical - Billie Bust Up - Among Us - [MANY MORE]. </p>
 
 <img src="https://64.media.tumblr.com/abb92f2efbceef92e8076fd966033c24/8f8ac94bf4369e3a-ac/s1280x1920/b97ceb4f51d7071fbdf88a19bfb3f3a4f78cf7ec.pnj" alt="Credits to Uzimacchiato">
 
-<sub align=center> *# 💤 . Blf ziv z wrhvzhv lm gsv uzxv lu gsrh kozmvg, zmw R zn rgh xfiv. |~| The user deeply apologizes if they were really rude or mean in the past!*</sub>
+<sub align=center> *# 💤 . Dont go lying 2 me! I know I saw a body there. » The user deeply apologizes if they were really rude or mean in the past!*</sub>
