@@ -10,5 +10,7 @@
   <h4 align=center>༺༒༻ ʙᴀsɪᴄ ɪɴғᴏʀᴍᴀᴛɪᴏɴ ༺༒༻</h4>
   <sub><i> Designation: Kayla | Warp | Skin Name</i></sub><br>
   <sub><i> Pronouns: Any/All | Occasional Mirror</i></sub><br>
+  <sub align=left><i> Identity / Orientation: Gender Apathetic | Demi-Bisexual</i></sub>
+  <sub align=left><i> Timezone: GMT+8 | PHT</i></sub>
 </body>
 </html>
