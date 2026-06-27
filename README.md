@@ -7,6 +7,8 @@
 <body>
   <p align=center><sub><i> "Bad thoughts give me bad dreams, and my bad dreams make me get up and walk."</i></sub></p>
   <img src=https://pixelsafari.neocities.org/dividers/bow/black.png alt="black ribbon divider">
-  <p> Insert Information, Work in Progress</p>
+  <h4 align=center>༺༒༻ ʙᴀsɪᴄ ɪɴғᴏʀᴍᴀᴛɪᴏɴ ༺༒༻</h4>
+  <sub><i> Designation: Kayla | Warp | Skin Name</i></sub><br>
+  <sub><i> Pronouns: Any/All | Occasional Mirror</i></sub><br>
 </body>
 </html>
