@@ -6,6 +6,7 @@
 </head>
 <body>
   <p align=center><sub><i> "Bad thoughts give me bad dreams, and my bad dreams make me get up and walk."</i></sub></p>
+  <img src=https://pixelsafari.neocities.org/dividers/bow/black.png alt="black ribbon divider">
   <p> Insert Information, Work in Progress</p>
 </body>
 </html>
